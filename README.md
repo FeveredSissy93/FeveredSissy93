@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FeveredSissy93
-- 👀 I’m interested in ... open world sfw and nsfw rpg's.
+- 👀 I’m interested in ... open world sfw and nsfw rpg's and m2f transformations like inanime take a pill and poof.
 - 🌱 I’m currently learning ... communication skills.
 - 💞️ I’m looking to collaborate on ... life.
 - 📫 How to reach me ... 8645246936
